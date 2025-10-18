@@ -1,5 +1,3 @@
-for i in range(234):
-    cggfcgjvhh
-    jbhjbhhjhb
-    hbbhbhjb
-    fcfccf
+456788888887
+78765888858
+8777777788
